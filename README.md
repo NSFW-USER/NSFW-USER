@@ -1,4 +1,4 @@
-![ef2b57df9163689139ba66d59f95fa17](https://github.com/NSFW-USER/NSFW-USER/assets/145634237/d4ccb756-5d5f-413a-8cd1-c47c70f05400)
+![6a267f821da3f90eb77abfeee4f720bf](https://github.com/NSFW-USER/NSFW-USER/assets/145634237/33bbd0ac-f8ad-4ead-ae20-f0c5e11b2569)
 
 <!---
 NSFW-USER/NSFW-USER is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
